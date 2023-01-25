@@ -13,5 +13,5 @@ here you can find my [Image](christliche-kirche-in-latakia-syrien-nahjpgost-west
 
 :smile:
 :book:
-:sun:
+
 
