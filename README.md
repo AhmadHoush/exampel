@@ -1,2 +1,2 @@
 ## Link
-more informatiomn [hier](https://google.com)
+more informatiomn [google](https://google.com)
